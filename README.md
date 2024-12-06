@@ -8,4 +8,6 @@
 
 [Super God Gene](https://i0iu.github.io/0/sGTYu)
 
+[Super Gene Ⅱ: Evolution](https://i0iu.github.io/0/1fg5T)
+
 [I have a hundred times reward in online games](https://i0iu.github.io/0/GgTTy)

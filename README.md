@@ -13,3 +13,5 @@
 [I have a hundred times reward in online games](https://i0iu.github.io/0/GgTTy)
 
 [Super Rich: I get rich by spending money](https://i0iu.github.io/0/8UNLxP)
+
+[God-tier Farm](https://i0iu.github.io/0/9LQm5a)

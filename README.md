@@ -17,3 +17,5 @@
 [God-tier Farm](https://i0iu.github.io/0/9LQm5a)
 
 [Honestly, I am Mr. Richest](https://i0iu.github.io/0/bEgq3j)
+
+[Villain: I forcibly marry the protagonist's master at the beginning, I am invincible](https://i0iu.github.io/0/Dbzm5j)

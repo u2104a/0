@@ -15,3 +15,5 @@
 [Super Rich: I get rich by spending money](https://i0iu.github.io/0/8UNLxP)
 
 [God-tier Farm](https://i0iu.github.io/0/9LQm5a)
+
+[Honestly, I am Mr. Richest](https://i0iu.github.io/0/bEgq3j)

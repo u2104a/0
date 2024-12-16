@@ -26,4 +26,4 @@
 
 [Let Me Game in Peace](https://i0iu.github.io/0/5D8cru)
 
-[Super Success System](https://i0iu.github.io/0/aB25uQ]
+[Super Success System](https://i0iu.github.io/0/aB25uQ)

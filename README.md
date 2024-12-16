@@ -21,3 +21,5 @@
 [Villain: I forcibly marry the protagonist's master at the beginning, I am invincible](https://i0iu.github.io/0/Dbzm5j)
 
 [Becoming the Richest Starting from Losses in Games (亏成首富从游戏开始)](https://i0iu.github.io/0/td2HDk)
+
+[The Strongest Dad: Signed 100 Million at the Start!](https://i0iu.github.io/0/tTNj3W)

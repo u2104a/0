@@ -31,3 +31,5 @@
 [My Skills Depend on Picking](https://i0iu.github.io/0/ea7V6T)
 
 [I have a god-level income system](https://i0iu.github.io/0/Rcg8XZ)
+
+[My Skills Depend on Picking](https://i0iu.github.io/0/q7gM86)

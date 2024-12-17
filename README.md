@@ -27,3 +27,5 @@
 [Let Me Game in Peace](https://i0iu.github.io/0/5D8cru)
 
 [Super Success System](https://i0iu.github.io/0/aB25uQ)
+
+[My Skills Depend on Picking](https://i0iu.github.io/0/ea7V6T)

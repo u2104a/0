@@ -1,6 +1,8 @@
 ## Redirect...
 
-[I have billions of invincible inheritances, sweeping across the heavens and the worlds](https://i0iu.github.io/0/618Dz)
+[I have billions of invincible inheritances, sweeping across the heavens and the worlds](https://i0iu.github.io/0/618Dz)<br>
+> [YouTube Playlist](https://www.youtube.com/playlist?list=PL9Q9utYw0fqmn7CI90vW4NpNq5WweN7Qp)
+> ![tttttr](https://www.wuxiaspot.com/d/file/cover123/5xgnoh0bsrc.jpeg)
 
 [I, signed for ten thousand years, was exposed by my beautiful apprentice](https://i0iu.github.io/0/5nF45)
 

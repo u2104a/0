@@ -35,3 +35,5 @@
 [My Skills Depend on Picking](https://i0iu.github.io/0/q7gM86)
 
 [God Level Lucky Upgrade System](https://i0iu.github.io/0/Wr9aNG)
+
+[Immemorial Paragon](https://i0iu.github.io/0/ea7V6T)

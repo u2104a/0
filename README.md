@@ -1,10 +1,8 @@
-## Redirect...
-
 ---
 
-### I have billions of invincible inheritances, sweeping across the heavens and the worlds
+- ### I have billions of invincible inheritances, sweeping across the heavens and the worlds
 
-> ![novel image](.image/ihboiisathatw.png )
+> <img src=".image/ihboiisathatw.png " width=255px>
 
 > **Status:** *Complete*
 
@@ -16,9 +14,9 @@
 
 ---
 
-### I, signed for ten thousand years, was exposed by my beautiful apprentice
+- ### I, signed for ten thousand years, was exposed by my beautiful apprentice
 
-> ![novel image](.image/isfttywebmba.jpg )
+> <img src=".image/isfttywebmba.jpg " width=255px>
 
 > **Status:** *Complete*
 
@@ -30,9 +28,9 @@
 
 ---
 
-### Ultrabasic evolution
+- ### Ultrabasic evolution
 
-> ![novel image](.image/ue.jpg )
+> <img src=".image/ue.jpg " width=255px>
 
 > **Status:** *Incomplete*
 
@@ -40,13 +38,15 @@
 
 > **Source:** *https://i0iu.github.io/0/uLeVa*
 
-> **YouTube Playlist:** [**PL9Q9utYw0fqm1TgAlcZ31EXC00lTyxkAP**](https://www.youtube.com/playlist?list=PL9Q9utYw0fqm1TgAlcZ31EXC00lTyxkAP)
+> **YouTube Playlist:** 
+>- [**PL9Q9utYw0fqm1TgAlcZ31EXC00lTyxkAP**](https://www.youtube.com/playlist?list=PL9Q9utYw0fqm1TgAlcZ31EXC00lTyxkAP) - English
+>- [**PL9Q9utYw0fqmzx6WSgSF0yYskCPy2atS6**](https://www.youtube.com/playlist?list=PL9Q9utYw0fqmzx6WSgSF0yYskCPy2atS6) - Hindi
 
 ---
 
-### Super God Gene
+- ### Super God Gene
 
-> ![novel image](.image/sgg.webp )
+> <img src=".image/sgg.webp " width=255px>
 
 > **Status:** *Complete*
 
@@ -54,13 +54,15 @@
 
 > **Source:** *https://i0iu.github.io/0/sGTYu*
 
-> **YouTube Playlist:** [**PL9Q9utYw0fqmEKu4murZJSOJ8zGLHqwjG**](https://www.youtube.com/playlist?list=PL9Q9utYw0fqmEKu4murZJSOJ8zGLHqwjG)
+> **YouTube Playlist:** 
+>- [**PL9Q9utYw0fqmEKu4murZJSOJ8zGLHqwjG**](https://www.youtube.com/playlist?list=PL9Q9utYw0fqmEKu4murZJSOJ8zGLHqwjG)
+>- [**PL9Q9utYw0fqn2QWmU6nm4k3FN0owHkaHF**](https://www.youtube.com/playlist?list=PL9Q9utYw0fqn2QWmU6nm4k3FN0owHkaHF)
 
 ---
 
-### Super Gene 2: Evolution
+- ### Super Gene 2: Evolution
 
-> ![novel image](.image/sg2:e.jpg )
+> <img src=".image/sg2:e.jpg " width=255px>
 
 > **Status:** *Incomplete*
 
@@ -72,9 +74,9 @@
 
 ---
 
-### I have a hundred times reward in online games
+- ### I have a hundred times reward in online games
 
-> ![novel image](.image/ihahtriog.jpg )
+> <img src=".image/ihahtriog.jpg " width=255px>
 
 > **Status:** *Complete*
 
@@ -86,9 +88,9 @@
 
 ---
 
-### Super Rich: I get rich by spending money
+- ### Super Rich: I get rich by spending money
 
-> ![novel image](.image/sr:igrbsm.jpeg )
+> <img src=".image/sr:igrbsm.jpeg " width=255px>
 
 > **Status:** *Complete*
 
@@ -100,9 +102,9 @@
 
 ---
 
-### God-tier Farm
+- ### God-tier Farm
 
-> ![novel image](.image/gtf.jpg )
+> <img src=".image/gtf.jpg " width=255px>
 
 > **Status:** *Complete*
 
@@ -114,9 +116,9 @@
 
 ---
 
-### Honestly, I am Mr. Richest
+- ### Honestly, I am Mr. Richest
 
-> ![novel image](.image/h,iamr.webp )
+> <img src=".image/h,iamr.webp " width=255px>
 
 > **Status:** *Complete*
 
@@ -128,9 +130,9 @@
 
 ---
 
-### Villain: I forcibly marry the protagonist's master at the beginning, I am invincible
+- ### Villain: I forcibly marry the protagonist's master at the beginning, I am invincible
 
-> ![novel image](.image/v:ifmtpmatb,iai.webp )
+> <img src=".image/v:ifmtpmatb,iai.webp " width=255px>
 
 > **Status:** *Complete*
 
@@ -142,9 +144,9 @@
 
 ---
 
-### Becoming the Richest Starting from Losses in Games (亏成首富从游戏开始)
+- ### Becoming the Richest Starting from Losses in Games (亏成首富从游戏开始)
 
-> ![novel image](.image/btrsflig.jpeg )
+> <img src=".image/btrsflig.jpeg " width=255px>
 
 > **Status:** *Complete*
 
@@ -156,9 +158,9 @@
 
 ---
 
-### The Strongest Dad: Signed 100 Million at the Start!
+- ### The Strongest Dad: Signed 100 Million at the Start!
 
-> ![novel image](.image/tsd:s100mats.webp )
+> <img src=".image/tsd:s100mats.webp " width=255px>
 
 > **Status:** *Complete*
 
@@ -170,9 +172,9 @@
 
 ---
 
-### Let Me Game in Peace
+- ### Let Me Game in Peace
 
-> ![novel image](.image/lmgip.jpg )
+> <img src=".image/lmgip.jpg " width=255px>
 
 > **Status:** *Complete*
 
@@ -184,9 +186,9 @@
 
 ---
 
-### Super Success System
+- ### Super Success System
 
-> ![novel image](.image/sss.webp )
+> <img src=".image/sss.webp " width=255px>
 
 > **Status:** *Complete*
 
@@ -198,9 +200,9 @@
 
 ---
 
-### I have a god-level income system
+- ### I have a god-level income system
 
-> ![novel image](.image/msdop.webp )
+> <img src=".image/msdop.webp " width=255px>
 
 > **Status:** *Complete*
 
@@ -212,9 +214,9 @@
 
 ---
 
-### My Skills Depend on Picking
+- ### My Skills Depend on Picking
 
-> ![novel image](.image/ihaglis.jpeg )
+> <img src=".image/ihaglis.jpeg " width=255px>
 
 > **Status:** *Complete*
 
@@ -226,9 +228,9 @@
 
 ---
 
-### God Level Lucky Upgrade System
+- ### God Level Lucky Upgrade System
 
-> ![novel image](.image/ip.webp )
+> <img src=".image/ip.webp " width=255px>
 
 > **Status:** *Complete*
 
@@ -240,9 +242,9 @@
 
 ---
 
-### Immemorial Paragon
+- ### Immemorial Paragon
 
-> ![novel image](.image/gllus.webp)
+> <img src=".image/gllus.webp" width=255px>
 
 > **Status:** *Complete*
 

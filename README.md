@@ -1,35 +1,257 @@
-## Redirect...
+---
 
-[I have billions of invincible inheritances, sweeping across the heavens and the worlds](https://i0iu.github.io/0/618Dz)
+- ### I have billions of invincible inheritances, sweeping across the heavens and the worlds
 
-[I, signed for ten thousand years, was exposed by my beautiful apprentice](https://i0iu.github.io/0/5nF45)
+> <img src=".image/ihboiisathatw.png " width=255px>
 
-[Ultrabasic Evolution](https://i0iu.github.io/0/uLeVa)
+> **Status:** *Complete*
 
-[Super God Gene](https://i0iu.github.io/0/sGTYu)
+> **Author:** *Mu De Gan Qing De Xian Yu*
 
-[Super Gene Ⅱ: Evolution](https://i0iu.github.io/0/1fg5T)
+> **Source:** *https://i0iu.github.io/0/618Dz*
 
-[I have a hundred times reward in online games](https://i0iu.github.io/0/GgTTy)
+> **YouTube Playlist:** [**PL9Q9utYw0fqmn7CI90vW4NpNq5WweN7Qp**](https://www.youtube.com/playlist?list=PL9Q9utYw0fqmn7CI90vW4NpNq5WweN7Qp)
 
-[Super Rich: I get rich by spending money](https://i0iu.github.io/0/8UNLxP)
+---
 
-[God-tier Farm](https://i0iu.github.io/0/9LQm5a)
+- ### I, signed for ten thousand years, was exposed by my beautiful apprentice
 
-[Honestly, I am Mr. Richest](https://i0iu.github.io/0/bEgq3j)
+> <img src=".image/isfttywebmba.jpg " width=255px>
 
-[Villain: I forcibly marry the protagonist's master at the beginning, I am invincible](https://i0iu.github.io/0/Dbzm5j)
+> **Status:** *Complete*
 
-[Becoming the Richest Starting from Losses in Games (亏成首富从游戏开始)](https://i0iu.github.io/0/td2HDk)
+> **Author:** *Yi Chen Xi*
 
-[The Strongest Dad: Signed 100 Million at the Start!](https://i0iu.github.io/0/tTNj3W)
+> **Source:** *https://i0iu.github.io/0/5nF45*
 
-[Let Me Game in Peace](https://i0iu.github.io/0/5D8cru)
+> **YouTube Playlist:** [**PL9Q9utYw0fqkk7MtGdoeXC2aAtkwz5-3a**](https://www.youtube.com/playlist?list=PL9Q9utYw0fqkk7MtGdoeXC2aAtkwz5-3a)
 
-[Super Success System](https://i0iu.github.io/0/aB25uQ)
+---
 
-[My Skills Depend on Picking](https://i0iu.github.io/0/ea7V6T)
+- ### Ultrabasic evolution
 
-[I have a god-level income system](https://i0iu.github.io/0/Rcg8XZ)
+> <img src=".image/ue.jpg " width=255px>
 
-[My Skills Depend on Picking](https://i0iu.github.io/0/q7gM86)
+> **Status:** *Incomplete*
+
+> **Author:** *Shi Er Yi Hei An Chi Tian Shi*
+
+> **Source:** *https://i0iu.github.io/0/uLeVa*
+
+> **YouTube Playlist:** 
+>- [**PL9Q9utYw0fqm1TgAlcZ31EXC00lTyxkAP**](https://www.youtube.com/playlist?list=PL9Q9utYw0fqm1TgAlcZ31EXC00lTyxkAP) - English
+>- [**PL9Q9utYw0fqmzx6WSgSF0yYskCPy2atS6**](https://www.youtube.com/playlist?list=PL9Q9utYw0fqmzx6WSgSF0yYskCPy2atS6) - Hindi
+
+---
+
+- ### Super God Gene
+
+> <img src=".image/sgg.webp " width=255px>
+
+> **Status:** *Complete*
+
+> **Author:** *Shi Er Yi Hei An Chi Tian Shi*
+
+> **Source:** *https://i0iu.github.io/0/sGTYu*
+
+> **YouTube Playlist:** 
+>- [**PL9Q9utYw0fqmEKu4murZJSOJ8zGLHqwjG**](https://www.youtube.com/playlist?list=PL9Q9utYw0fqmEKu4murZJSOJ8zGLHqwjG)
+>- [**PL9Q9utYw0fqn2QWmU6nm4k3FN0owHkaHF**](https://www.youtube.com/playlist?list=PL9Q9utYw0fqn2QWmU6nm4k3FN0owHkaHF)
+
+---
+
+- ### Super Gene 2: Evolution
+
+> <img src=".image/sg2:e.jpg " width=255px>
+
+> **Status:** *Incomplete*
+
+> **Author:** *Shi Er Yi Hei An Chi Tian Shi*
+
+> **Source:** *https://i0iu.github.io/0/1fg5T*
+
+> **YouTube Playlist:** [**PL9Q9utYw0fqm1TgAlcZ31EXC00lTyxkAP**](https://www.youtube.com/playlist?list=PL9Q9utYw0fqm1TgAlcZ31EXC00lTyxkAP)
+
+---
+
+- ### I have a hundred times reward in online games
+
+> <img src=".image/ihahtriog.jpg " width=255px>
+
+> **Status:** *Complete*
+
+> **Author:** *Mo Yu*
+
+> **Source:** *https://i0iu.github.io/0/GgTTy*
+
+> **YouTube Playlist:** [**PL9Q9utYw0fqlLjUHZf_orWovzDpph-Onq**](https://www.youtube.com/playlist?list=PL9Q9utYw0fqlLjUHZf_orWovzDpph-Onq)
+
+---
+
+- ### Super Rich: I get rich by spending money
+
+> <img src=".image/sr:igrbsm.jpeg " width=255px>
+
+> **Status:** *Complete*
+
+> **Author:** *Jiu Yang Yao Dang Shou Fu*
+
+> **Source:** *https://i0iu.github.io/0/8UNLxP*
+
+> **YouTube Playlist:** [**PL_dsavwhmRac9xvKgR2E-FeZ6ViHz3jms**](https://www.youtube.com/playlist?list=PL_dsavwhmRac9xvKgR2E-FeZ6ViHz3jms)
+
+---
+
+- ### God-tier Farm
+
+> <img src=".image/gtf.jpg " width=255px>
+
+> **Status:** *Complete*
+
+> **Author:** *Gentleness In A Steel Gun*
+
+> **Source:** *https://i0iu.github.io/0/9LQm5a*
+
+> **YouTube Playlist:** [**PL_dsavwhmRadNBkbgXNYSEohZy231vuBE**](https://www.youtube.com/playlist?list=PL_dsavwhmRadNBkbgXNYSEohZy231vuBE)
+
+---
+
+- ### Honestly, I am Mr. Richest
+
+> <img src=".image/h,iamr.webp " width=255px>
+
+> **Status:** *Complete*
+
+> **Author:** *Yi Chong Tian*
+
+> **Source:** *https://i0iu.github.io/0/bEgq3j*
+
+> **YouTube Playlist:** [**PL9Q9utYw0fqnC9-pyrgcrGCBSgMjVGwbC**](https://www.youtube.com/playlist?list=PL9Q9utYw0fqnC9-pyrgcrGCBSgMjVGwbC)
+
+---
+
+- ### Villain: I forcibly marry the protagonist's master at the beginning, I am invincible
+
+> <img src=".image/v:ifmtpmatb,iai.webp " width=255px>
+
+> **Status:** *Complete*
+
+> **Author:** *Ben Di Tu Dou*
+
+> **Source:** *https://i0iu.github.io/0/Dbzm5j*
+
+> **YouTube Playlist:** [**PL9Q9utYw0fqminFoDnpGuYE-iAeciCInj**](https://www.youtube.com/playlist?list=PL9Q9utYw0fqminFoDnpGuYE-iAeciCInj)
+
+---
+
+- ### Becoming the Richest Starting from Losses in Games (亏成首富从游戏开始)
+
+> <img src=".image/btrsflig.jpeg " width=255px>
+
+> **Status:** *Complete*
+
+> **Author:** *青衫取醉*
+
+> **Source:** *https://i0iu.github.io/0/td2HDk*
+
+> **YouTube Playlist:** [**PL_dsavwhmRadLK-GtY5wck3_VuKP4X4tb**](https://www.youtube.com/playlist?list=PL_dsavwhmRadLK-GtY5wck3_VuKP4X4tb)
+
+---
+
+- ### The Strongest Dad: Signed 100 Million at the Start!
+
+> <img src=".image/tsd:s100mats.webp " width=255px>
+
+> **Status:** *Complete*
+
+> **Author:** *Yao Yue Ye*
+
+> **Source:** *https://i0iu.github.io/0/tTNj3W*
+
+> **YouTube Playlist:** [**PL_dsavwhmRaeS7NsHPbAqsBItjxkw8RoO**](https://www.youtube.com/playlist?list=PL_dsavwhmRaeS7NsHPbAqsBItjxkw8RoO)
+
+---
+
+- ### Let Me Game in Peace
+
+> <img src=".image/lmgip.jpg " width=255px>
+
+> **Status:** *Complete*
+
+> **Author:** *Shi Er Yi Hei An Chi Tian Shi*
+
+> **Source:** *https://i0iu.github.io/0/5D8cru*
+
+> **YouTube Playlist:** [**PL9Q9utYw0fqkz4g9_CFAGwx8A-g3pbQ12**](https://www.youtube.com/playlist?list=PL9Q9utYw0fqkz4g9_CFAGwx8A-g3pbQ12)
+
+---
+
+- ### Super Success System
+
+> <img src=".image/sss.webp " width=255px>
+
+> **Status:** *Complete*
+
+> **Author:** *Ai Shai Tai Yang De Xian Yu*
+
+> **Source:** *https://i0iu.github.io/0/aB25uQ*
+
+> **YouTube Playlist:** [**PL9Q9utYw0fqlpXc53q-Iodfdw4PBUlGku**](https://www.youtube.com/playlist?list=PL9Q9utYw0fqlpXc53q-Iodfdw4PBUlGku)
+
+---
+
+- ### I have a god-level income system
+
+> <img src=".image/msdop.webp " width=255px>
+
+> **Status:** *Complete*
+
+> **Author:** *Bu Shi Wen Zi*
+
+> **Source:** *https://i0iu.github.io/0/Rcg8XZ*
+
+> **YouTube Playlist:** [**PL_dsavwhmRadGQV30GELAl4HUQj3PZCSA**](https://www.youtube.com/playlist?list=PL_dsavwhmRadGQV30GELAl4HUQj3PZCSA)
+
+---
+
+- ### My Skills Depend on Picking
+
+> <img src=".image/ihaglis.jpeg " width=255px>
+
+> **Status:** *Complete*
+
+> **Author:** *Bai Wan Dan Ji Wang*
+
+> **Source:** *https://i0iu.github.io/0/q7gM86*
+
+> **YouTube Playlist:** [**PL_dsavwhmRafD6SpVpH0KsZGzLOhZ51nd**](https://www.youtube.com/playlist?list=PL_dsavwhmRafD6SpVpH0KsZGzLOhZ51nd)
+
+---
+
+- ### God Level Lucky Upgrade System
+
+> <img src=".image/ip.webp " width=255px>
+
+> **Status:** *Complete*
+
+> **Author:** *Tu Dou Yu*
+
+> **Source:** *https://i0iu.github.io/0/Wr9aNG*
+
+> **YouTube Playlist:** [**++++++++**](https://www.youtube.com/playlist?list=++++++++)
+
+---
+
+- ### Immemorial Paragon
+
+> <img src=".image/gllus.webp" width=255px>
+
+> **Status:** *Complete*
+
+> **Author:** *Liang Chu Xian Chou*
+
+> **Source:** *https://i0iu.github.io/0/ea7V6T*
+
+> **YouTube Playlist:** [**++++++++**](https://www.youtube.com/playlist?list=++++++++)
+
+---

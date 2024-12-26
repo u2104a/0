@@ -1,6 +1,20 @@
 
 ---
 
+- ### New store opening: mythical beasts and artifacts, more than 100 million points
+
+> <img src=".image/ihboiisathatw.png " width=255px>
+
+> **Status:** *Complete*
+
+> **Author:** *Shao Shu Jiu Hui*
+
+> **Source:** *https://i0iu.github.io/0/ARn9PF*
+
+> **YouTube Playlist:** [**---------**](https://www.youtube.com/playlist?list=---------)
+
+---
+
 - ### I have billions of invincible inheritances, sweeping across the heavens and the worlds
 
 > <img src=".image/ihboiisathatw.png " width=255px>

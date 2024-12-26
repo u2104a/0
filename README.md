@@ -1,9 +1,23 @@
 
 ---
 
+- ### Myriad Realms Grand Manager with a God Class System
+
+> <img src=".image/mrgmwagcs.jpg" width=255px>
+
+> **Status:** *Complete*
+
+> **Author:** *Shao Shu Jiu Hui*
+
+> **Source:** *https://i0iu.github.io/0/nTcW8k*
+
+> **YouTube Playlist:** [**---------**](https://www.youtube.com/playlist?list=---------)
+
+---
+
 - ### New store opening: mythical beasts and artifacts, more than 100 million points
 
-> <img src=".image/nsombaamt100mt.jpg " width=255px>
+> <img src=".image/nsombaamt100mt.jpg" width=255px>
 
 > **Status:** *Complete*
 

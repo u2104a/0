@@ -3,7 +3,7 @@
 
 - ### New store opening: mythical beasts and artifacts, more than 100 million points
 
-> <img src=".image/ihboiisathatw.png " width=255px>
+> <img src=".image/nsombaamt100mt.jpg " width=255px>
 
 > **Status:** *Complete*
 

@@ -1,3 +1,18 @@
+# Link Shortened
+
+---
+
+- ### "Nine Flames Sovereign"
+
+> <img src=".image/nfs.jpg" width=255px>
+
+> **Status:** *Complete*
+
+> **Author:** *Ai Chi Bai Cai*
+
+> **Source:** *https://i0iu.github.io/0/g2j5FL*
+
+> **YouTube Playlist:** [**---------**](https://www.youtube.com/playlist?list=---------)
 
 ---
 

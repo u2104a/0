@@ -2,7 +2,7 @@
 
 ---
 
-- ### "Nine Flames Sovereign"
+- ### Nine Flames Sovereign
 
 > <img src=".image/nfs.jpg" width=255px>
 
@@ -162,7 +162,7 @@
 
 - ### Honestly, I am Mr. Richest
 
-> <img src=".image/h,iamr.webp " width=255px>
+> <img src=".image/h,iamr.webp" width=255px>
 
 > **Status:** *Complete*
 
@@ -274,7 +274,7 @@
 
 - ### God Level Lucky Upgrade System
 
-> <img src=".image/ip.webp " width=255px>
+> <img src=".image/gllus.webp " width=255px>
 
 > **Status:** *Complete*
 
@@ -288,7 +288,7 @@
 
 - ### Immemorial Paragon
 
-> <img src=".image/gllus.webp" width=255px>
+> <img src=".image/ip.webp" width=255px>
 
 > **Status:** *Complete*
 

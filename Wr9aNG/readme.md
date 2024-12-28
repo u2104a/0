@@ -5,7 +5,7 @@
 
 <div style='margin: auto; width: 85%; padding: 10px;'>
 
-<img src=".image/gllus.webp" style='display: block; margin: auto; width: 30%;'>
+<img src="../.image/gllus.webp" style='display: block; margin: auto; width: 30%;'>
 
 | | |
 | :---: | :---: |

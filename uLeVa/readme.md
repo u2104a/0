@@ -5,7 +5,7 @@
 
 <div style='margin: auto; width: 85%; padding: 10px;'>
 
-<img src=".image/ue.jpg" style='display: block; margin: auto; width: 30%;'>
+<img src="../.image/ue.jpg" style='display: block; margin: auto; width: 30%;'>
 
 | | |
 | :---: | :---: |

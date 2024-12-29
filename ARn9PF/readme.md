@@ -13,7 +13,7 @@
 | **Author** | **Shao Shu Jiu Hui** |
 | **Status** | ***Completed*** |
 | **Source** | **https://i0iu.github.io/0/ARn9PF** |
-| **YouTube Playlist** | [**---------**](https://www.youtube.com/playlist?list=---------) |
+| **YouTube Playlist** | [**PL_dsavwhmRaeLZQZOu66Rs6fde-wiKci8**](https://www.youtube.com/playlist?list=PL_dsavwhmRaeLZQZOu66Rs6fde-wiKci8) |
 
 **... Redirecting in 5 Seconds**
 

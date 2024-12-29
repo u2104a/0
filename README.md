@@ -2,6 +2,20 @@
 
 ---
 
+- ### Supreme Celestial Devil
+
+> <img src=".image/scd.webp" width=255px>
+
+> **Status:** *Completed*
+
+> **Author:** *Jiu Dang Jia*
+
+> **Source:** *https://i0iu.github.io/0/R6eGyv*
+
+> **YouTube Playlist:** [**---------**](https://www.youtube.com/playlist?list=---------)
+
+---
+
 - ### Nine Flames Sovereign
 
 > <img src=".image/nfs.jpg" width=255px>
@@ -26,7 +40,7 @@
 
 > **Source:** *https://i0iu.github.io/0/nTcW8k*
 
-> **YouTube Playlist:** [**---------**](https://www.youtube.com/playlist?list=---------)
+> **YouTube Playlist:** [**PL_dsavwhmRafxk1lr_MiYiKlx_fisjUfc**](https://www.youtube.com/playlist?list=PL_dsavwhmRafxk1lr_MiYiKlx_fisjUfc)
 
 ---
 
@@ -40,7 +54,7 @@
 
 > **Source:** *https://i0iu.github.io/0/ARn9PF*
 
-> **YouTube Playlist:** [**---------**](https://www.youtube.com/playlist?list=---------)
+> **YouTube Playlist:** [**PL_dsavwhmRaeLZQZOu66Rs6fde-wiKci8**](https://www.youtube.com/playlist?list=PL_dsavwhmRaeLZQZOu66Rs6fde-wiKci8)
 
 ---
 

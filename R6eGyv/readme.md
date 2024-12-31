@@ -13,7 +13,7 @@
 | **Author** | **Jiu Dang Jia** |
 | **Status** | ***Completed*** |
 | **Source** | **https://i0iu.github.io/0/R6eGyv** |
-| **YouTube Playlist** | [**---------**](https://www.youtube.com/playlist?list=--------) |
+| **YouTube Playlist** | [**PL_dsavwhmRafFJQFPyFutoJsSqW_4O3SQ**](https://www.youtube.com/playlist?list=PL_dsavwhmRafFJQFPyFutoJsSqW_4O3SQ) |
 
 **... Redirecting in 5 Seconds**
 

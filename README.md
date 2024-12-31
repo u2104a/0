@@ -2,6 +2,19 @@
 
 ---
 
+- ### The Strongest Martial Spirit of Infinite Upgrade
+
+> <img src=".image/tsmsoiu.jpg" width=255px>
+
+> **Status:** *Completed*
+
+> **Author:** *Re Xie La Jiao*
+
+> **Source:** *https://i0iu.github.io/0/U38Ky9*
+
+> **YouTube Playlist:** **---**
+---
+
 - ### Supreme Celestial Devil
 
 > <img src=".image/scd.webp" width=255px>
@@ -12,7 +25,7 @@
 
 > **Source:** *https://i0iu.github.io/0/R6eGyv*
 
-> **YouTube Playlist:** [**---------**](https://www.youtube.com/playlist?list=---------)
+> **YouTube Playlist:** [**PL_dsavwhmRafFJQFPyFutoJsSqW_4O3SQ**](https://www.youtube.com/playlist?list=PL_dsavwhmRafFJQFPyFutoJsSqW_4O3SQ)
 
 ---
 

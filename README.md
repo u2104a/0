@@ -2,6 +2,20 @@
 
 ---
 
+### Dragon Martial Emperor
+
+> <img src=".image/dem.jpg" width=255px>
+
+> **Status:** *Completed*
+
+> **Author:** *Feng Yin Zi Chen*
+
+> **Source:** *https://i0iu.github.io/0/53r6ed*
+
+> **YouTube Playlist:** **https://www.youtube.com/playlist?list=---**
+
+---
+
 - ### Dragon Emperor, Martial God
 
 > <img src=".image/demg.jpg" width=255px>

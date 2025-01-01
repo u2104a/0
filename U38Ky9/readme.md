@@ -13,7 +13,7 @@
 | **Author** | **Re Xie La Jiao** |
 | **Status** | ***Completed*** |
 | **Source** | **https://i0iu.github.io/0/U38Ky9** |
-| **YouTube Playlist** | **---** |
+| **YouTube Playlist** | [**PL_dsavwhmRad7AgVh5DNzcGcWeo4QLK0b**](https://www.youtube.com/playlist?list=PL_dsavwhmRad7AgVh5DNzcGcWeo4QLK0b) |
 
 **... Redirecting in 5 Seconds**
 

@@ -2,6 +2,20 @@
 
 ---
 
+- ### Dragon Emperor, Martial God
+
+> <img src=".image/demg.jpg" width=255px>
+
+> **Status:** *Completed*
+
+> **Author:** *Bu Zheng*
+
+> **Source:** *https://i0iu.github.io/0/R4ew3i*
+
+> **YouTube Playlist:** **https://www.youtube.com/playlist?list=---**
+
+---
+
 - ### The Strongest Martial Spirit of Infinite Upgrade
 
 > <img src=".image/tsmsoiu.jpg" width=255px>
@@ -12,7 +26,8 @@
 
 > **Source:** *https://i0iu.github.io/0/U38Ky9*
 
-> **YouTube Playlist:** **---**
+> **YouTube Playlist:** [**PL_dsavwhmRad7AgVh5DNzcGcWeo4QLK0b**](https://www.youtube.com/playlist?list=PL_dsavwhmRad7AgVh5DNzcGcWeo4QLK0b)
+
 ---
 
 - ### Supreme Celestial Devil

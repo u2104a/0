@@ -2,6 +2,20 @@
 
 ---
 
+### I Have an Invincible Copy System
+
+> <img src=".image/ihaics.jpg" width=255px>
+
+> **Status:** *Completed*
+
+> **Author:** *Yin Ling Feng*
+
+> **Source:** *https://i0iu.github.io/0/U56sgI*
+
+> **YouTube Playlist:** **https://www.youtube.com/playlist?list=---**
+
+---
+
 ### Genius Sword Immortal
 
 > <img src=".image/gsi.jpg" width=255px>
@@ -12,7 +26,7 @@
 
 > **Source:** *https://i0iu.github.io/0/53r6de*
 
-> **YouTube Playlist:** **https://www.youtube.com/playlist?list=---**
+> **YouTube Playlist:** **https://www.youtube.com/playlist?list=PL9Q9utYw0fqmxu2GKTQPsdVgDh3jR8F-W**
 
 ---
 

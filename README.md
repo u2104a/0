@@ -2,6 +2,19 @@
 
 ---
 
+### Invincible’s Most Powerful Divine Selection System
+> <img src=".image/impdss.jpg" width=255px>
+
+> **Status:** *Completed*
+
+> **Author:** *Tiao Wu De Sha Mao*
+
+> **Source:** *https://i0iu.github.io/0/bTe8f0*
+
+> **YouTube Playlist:** **https://www.youtube.com/playlist?list=---**
+
+---
+
 ### I Have an Invincible Copy System
 
 > <img src=".image/ihaics.jpg" width=255px>
@@ -40,7 +53,7 @@
 
 > **Source:** *https://i0iu.github.io/0/53r6ed*
 
-> **YouTube Playlist:** **https://www.youtube.com/playlist?list=---**
+> **YouTube Playlist:** **https://www.youtube.com/playlist?list=PL_dsavwhmRae6f4p04aAhdMz8ciD3kV9O**
 
 ---
 

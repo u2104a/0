@@ -2,6 +2,17 @@
 
 
 ---
+### Prodigiously Amazing Weaponsmith
+
+> **Status:** *Completed*
+
+> **Author:** *Shui Qingqing*
+
+> **Source:** *https://i0iu.github.io/0/E46rt7*
+
+> **YouTube Playlist:** **https://www.youtube.com/playlist?list=**
+
+---
 
 ### Peerless Pill God
 > <img src=".image/ppg.jpg" width=255px>

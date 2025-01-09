@@ -9,7 +9,7 @@
 | **Name** | **Prodigiously Amazing Weaponsmith** |
 | **Author** | **Shui Qingqing** |
 | **Status** | ***Completed*** |
-| **Source** | **https://i0iu.github.io/0/E46rt7** |
+| **Source** | [https://i0iu.github.io/0/E46rt7](https://i0iu.github.io/0/E46rt7) |
 | **YouTube Playlist** | [https://www.youtube.com/playlist?list=](https://www.youtube.com/playlist?list=) |
 
 
@@ -17,11 +17,8 @@
 
 **Sites:**
 
-- ***https://novelbin.org/novelbin/prodigiously-amazing-weaponsmith***
-[https://novelbin.org/novelbin/prodigiously-amazing-weaponsmith](https://novelbin.org/novelbin/prodigiously-amazing-weaponsmith)
+- [https://novelbin.org/novelbin/prodigiously-amazing-weaponsmith](https://novelbin.org/novelbin/prodigiously-amazing-weaponsmith)
 
-- ***https://boxnovel.com/novel/prodigiously-amazing-weaponsmith/***
-[https://boxnovel.com/novel/prodigiously-amazing-weaponsmith/](https://boxnovel.com/novel/prodigiously-amazing-weaponsmith/)
+- [https://boxnovel.com/novel/prodigiously-amazing-weaponsmith/](https://boxnovel.com/novel/prodigiously-amazing-weaponsmith/)
 
-- ***https://allnovelbook.com/novel/prodigiously-amazing-weaponsmith***
-[https://allnovelbook.com/novel/prodigiously-amazing-weaponsmith](https://allnovelbook.com/novel/prodigiously-amazing-weaponsmith)
+- [https://allnovelbook.com/novel/prodigiously-amazing-weaponsmith](https://allnovelbook.com/novel/prodigiously-amazing-weaponsmith)

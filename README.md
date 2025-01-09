@@ -1,5 +1,19 @@
 # Link Shortened
 
+
+---
+
+### Peerless Pill God
+> <img src=".image/ppg.jpg" width=255px>
+
+> **Status:** *Completed*
+
+> **Author:** *Lu Li*
+
+> **Source:** *https://i0iu.github.io/0/f6wkEF*
+
+> **YouTube Playlist:** **https://www.youtube.com/playlist?list=---**
+
 ---
 
 ### Invincible’s Most Powerful Divine Selection System
@@ -11,7 +25,7 @@
 
 > **Source:** *https://i0iu.github.io/0/bTe8f0*
 
-> **YouTube Playlist:** **https://www.youtube.com/playlist?list=---**
+> **YouTube Playlist:** **https://www.youtube.com/playlist?list=PL_dsavwhmRafB7vSb7_-tQ1P7eNXlkpkv**
 
 ---
 
@@ -25,7 +39,7 @@
 
 > **Source:** *https://i0iu.github.io/0/U56sgI*
 
-> **YouTube Playlist:** **https://www.youtube.com/playlist?list=---**
+> **YouTube Playlist:** **https://www.youtube.com/playlist?list=PL_dsavwhmRaeT3phQVLX7AahZzdQciiGL**
 
 ---
 

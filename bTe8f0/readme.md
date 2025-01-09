@@ -13,7 +13,7 @@
 | **Author** | **Tiao Wu De Sha Mao** |
 | **Status** | ***Completed*** |
 | **Source** | **https://i0iu.github.io/0/bEgq3j** |
-| **YouTube Playlist** | **https://www.youtube.com/playlist?list=---** |
+| **YouTube Playlist** | **https://www.youtube.com/playlist?list=https://www.youtube.com/playlist?list=PL_dsavwhmRafB7vSb7_-tQ1P7eNXlkpkv** |
 
 **... Redirecting in 5 Seconds**
 

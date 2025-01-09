@@ -2,7 +2,6 @@
 
 <meta name="viewport" content="width=device-width, initial-scale=1.0">
 
-
 #### Note: This image is not provided to avoiding any confusion.
 
 | | |
@@ -23,4 +22,3 @@
 - ***https://boxnovel.com/novel/prodigiously-amazing-weaponsmith/***
 
 - ***https://allnovelbook.com/novel/prodigiously-amazing-weaponsmith***
-

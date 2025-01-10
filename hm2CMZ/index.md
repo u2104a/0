@@ -2,10 +2,7 @@
 
 <meta name="viewport" content="width=device-width, initial-scale=1.0">
 
-<img src="cover.jpg" width=255px>
-
-
-| | |
+| **Image** | <img src="cover.jpg" width=255px> |
 | :---: | :---: |
 | **Name** | **Keyboard Immortal** |
 | **Author** | **Monk Of The Six Illusions** |

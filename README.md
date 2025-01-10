@@ -1,7 +1,21 @@
 # Link Shortened
 
+---
+
+### Keyboard Immortal
+
+<img src="hm2CMZ/cover.jpg" width=255px>
+
+> **Author:** *Monk Of The Six Illusions*
+
+> **Status:** *In-complete*
+
+> **Source:** [*https://i0iu.github.io/0/hm2CMZ*](https://i0iu.github.io/0/hm2CMZ)
+
+> **YouTube Playlist:** [---]()
 
 ---
+
 ### Prodigiously Amazing Weaponsmith
 
 > **Status:** *Completed*
@@ -10,7 +24,7 @@
 
 > **Source:** *https://i0iu.github.io/0/E46rt7*
 
-> **YouTube Playlist:** **https://www.youtube.com/playlist?list=**
+> **YouTube Playlist:** **https://www.youtube.com/playlist?list=PL_dsavwhmRaehjW_KlJtOXT3CpCg0XAe7**
 
 ---
 

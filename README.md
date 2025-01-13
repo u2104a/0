@@ -2,9 +2,25 @@
 
 ---
 
+### Peerless Genius System
+
+> **Alternative Name:** *The Genius System Without Equal*
+
+> <img src="AuriUX/cover.jpg" width=255px>
+
+> **Author:** *Straw Is Crazy Too*
+
+> **Status:** *Completed*
+
+> **Source:** [*https://i0iu.github.io/0/AuriUX*](https://i0iu.github.io/0/AuriUX)
+
+> **YouTube Playlist:** [---]()
+
+---
+
 ### Keyboard Immortal
 
-<img src="hm2CMZ/cover.jpg" width=255px>
+> <img src="hm2CMZ/cover.jpg" width=255px>
 
 > **Author:** *Monk Of The Six Illusions*
 

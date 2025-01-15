@@ -16,7 +16,7 @@
 | Status | **Completed** |
 | Genre | Supernatural, Comedy, Harem, Xuanhuan, Martial Arts, Xianxia, Tragedy, Action, Fantasy |
 | Novel Summary | Xiao Luo and his girlfriend had been in love with each other for four years when she proposed a break up. Because of this, Xiao Luo sped his car in the night and ended up in a car accident. But it was a blessing in disguise as he unexpectedly fused with a high tech system that originated from a universe hundreds of billions of light years away. From this moment on, the entire world started to run amok….. |
-| **YouTube Playlist** | [---]() |
+| **YouTube Playlist** | [https://www.youtube.com/playlist?list=PL_dsavwhmRaeCUoUJgMdh4GFvkMMRuduv](https://www.youtube.com/playlist?list=PL_dsavwhmRaeCUoUJgMdh4GFvkMMRuduv) |
 
 
 

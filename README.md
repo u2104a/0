@@ -14,7 +14,7 @@
 
 > **Source:** [*https://i0iu.github.io/0/AuriUX*](https://i0iu.github.io/0/AuriUX)
 
-> **YouTube Playlist:** [---]()
+> **YouTube Playlist:** [https://www.youtube.com/playlist?list=PL_dsavwhmRaeCUoUJgMdh4GFvkMMRuduv](https://www.youtube.com/playlist?list=PL_dsavwhmRaeCUoUJgMdh4GFvkMMRuduv)
 
 ---
 

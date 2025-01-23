@@ -2,6 +2,26 @@
 
 ---
 
+### The Growth of Primitive Civilization
+
+> **Name:** 原始文明成长记
+
+> **Auther:** 羽卿书
+
+> **(Translated) Name:** *The Growth of Primitive Civilization*
+
+> **(Translated) Author:** *Yu Qingshu*
+
+> <img src="88mEl1/cover.jpg" height=250px>
+
+> **Status:** *Completed*
+
+> **Source:** [*https://i0iu.github.io/0/88mEl1*](https://i0iu.github.io/0/88mEl1)
+
+> **YouTube Playlist:** [*https://www.youtube.com/playlist?list=*](https://www.youtube.com/playlist?list=)
+
+---
+
 ### Peerless Genius System
 
 > **Alternative Name:** *The Genius System Without Equal*

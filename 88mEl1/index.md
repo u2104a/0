@@ -9,7 +9,7 @@
 
 |||
 | :---: | :---: |
-| Image | <img src="cover.jpg" width=255px> |
+| Image | <img src="cover.jpeg" width=255px> |
 | Name | 原始文明成长记 |
 | Author | 羽卿书 |
 | (Translated) Name: | The Growth of Primitive Civilization |

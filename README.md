@@ -12,7 +12,7 @@
 
 > **(Translated) Author:** *Yu Qingshu*
 
-> <img src="88mEl1/cover.jpg" height=250px>
+> <img src="88mEl1/cover.jpeg" height=250px>
 
 > **Status:** *Completed*
 

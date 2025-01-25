@@ -16,4 +16,4 @@
 | (Translated) Author: | Yu Qingshu |
 | Genre | Urban Romance |
 | Novel Summary | A long-haired man, a piece of animal skin wrapped around his waist, a wooden stick in his left hand and a stone knife in his right hand, saw an old cat in front of him, threw the wooden stick and then the stone knife, and the old cat was hit and blood gushed out... Luo Chong looked at his fellow in front of him with pain, and there was a sentence in his heart that no one understood. Experience the hard and happy prehistoric era with Luo Chong, and witness the rise of a human civilization. Primitive farming hegemony article, learn about it... |
-| **YouTube Playlist** | [---](---) |
+| **YouTube Playlist** | [*https://www.youtube.com/playlist?list=PL_dsavwhmRafxnKkZ-TiG4ZBBMoT-HKXN*](https://www.youtube.com/playlist?list=PL_dsavwhmRafxnKkZ-TiG4ZBBMoT-HKXN) |

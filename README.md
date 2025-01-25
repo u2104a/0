@@ -2,6 +2,17 @@
 
 ---
 
+|||
+| :---: | :---: |
+| Image | <img src="88mTRE/cover.jpg" height=200px> |
+| Name | Are You Crazy? If You Become The Leader Of The Clan, All The Clan Members Will Become Emperors. |
+| Author | Greedy_For_The_Body_But_Not_Fo |
+| (original) Name: | 疯了吧，让你当族长，族人都成帝了 |
+| Source | [*https://i0iu.github.io/0/88mTRE*](https://i0iu.github.io/0/88mTRE) |
+| YouTube Playlist |  |
+
+---
+
 ### The Growth of Primitive Civilization
 
 > **Name:** 原始文明成长记
@@ -18,7 +29,7 @@
 
 > **Source:** [*https://i0iu.github.io/0/88mEl1*](https://i0iu.github.io/0/88mEl1)
 
-> **YouTube Playlist:** [*https://www.youtube.com/playlist?list=*](https://www.youtube.com/playlist?list=)
+> **YouTube Playlist:** [*https://www.youtube.com/playlist?list=PL_dsavwhmRafxnKkZ-TiG4ZBBMoT-HKXN*](https://www.youtube.com/playlist?list=PL_dsavwhmRafxnKkZ-TiG4ZBBMoT-HKXN)
 
 ---
 

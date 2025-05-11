@@ -2,14 +2,33 @@
 
 ---
 
-|||
-| :---: | :---: |
-| Image | <img src="88mTRE/cover.jpg" height=200px> |
-| Name | Are You Crazy? If You Become The Leader Of The Clan, All The Clan Members Will Become Emperors. |
-| Author | Greedy_For_The_Body_But_Not_Fo |
-| (original) Name: | 疯了吧，让你当族长，族人都成帝了 |
-| Source | [*https://i0iu.github.io/0/88mTRE*](https://i0iu.github.io/0/88mTRE) |
-| YouTube Playlist |  |
+> **Name:** **我的世界之史蒂夫无敌了** |
+
+> **Translated Name:** **My world Steve is invincible** |
+
+> **Author:** **哭无声岁月** |
+
+> **Image:** <img src="/94Lug6/MWSiI.jpeg" height=200px> |
+
+> **Status:** ***in completed*** |
+
+> **Source:** **https://i0iu.github.io/0/94Lug6** |
+
+> **YouTube Playlist:** [**---**](https://www.youtube.com/playlist?list=---) |
+
+---
+
+> **Name:** Are You Crazy? If You Become The Leader Of The Clan, All The Clan Members Will Become Emperors.
+
+> **Author:** Greedy_For_The_Body_But_Not_Fo
+
+> **(original) Name:** 疯了吧，让你当族长，族人都成帝了
+
+> **Image:** <img src="88mTRE/cover.jpg" height=200px>
+
+> **Source:** [*https://i0iu.github.io/0/88mTRE*](https://i0iu.github.io/0/88mTRE)
+
+> **YouTube Playlist:** 
 
 ---
 

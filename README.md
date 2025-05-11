@@ -2,19 +2,19 @@
 
 ---
 
-> **Name:** **我的世界之史蒂夫无敌了** |
+> **Name:** **我的世界之史蒂夫无敌了**
 
-> **Translated Name:** **My world Steve is invincible** |
+> **Translated Name:** **My world Steve is invincible**
 
-> **Author:** **哭无声岁月** |
+> **Author:** **哭无声岁月**
 
-> **Image:** <img src="/94Lug6/MWSiI.jpeg" height=200px> |
+> **Image:** <img src="/94Lug6/MWSiI.jpeg" height=200px>
 
-> **Status:** ***in completed*** |
+> **Status:** ***in completed***
 
-> **Source:** **https://i0iu.github.io/0/94Lug6** |
+> **Source:** **https://i0iu.github.io/0/94Lug6**
 
-> **YouTube Playlist:** [**---**](https://www.youtube.com/playlist?list=---) |
+> **YouTube Playlist:** [**---**](https://www.youtube.com/playlist?list=---)
 
 ---
 

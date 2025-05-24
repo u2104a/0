@@ -14,7 +14,7 @@
 | **Author** | **哭无声岁月** |
 | **Status** | ***Completed*** |
 | **Source** | **https://i0iu.github.io/0/94Lug6** |
-| **YouTube Playlist** | [**---**](https://www.youtube.com/playlist?list=---) |
+| **YouTube Playlist** | [**PL_dsavwhmRadUiPySf7Yf_FHwqtI-rEu1**](https://www.youtube.com/playlist?list=PL_dsavwhmRadUiPySf7Yf_FHwqtI-rEu1) |
 
 **... Redirecting in 5 Seconds**
 

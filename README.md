@@ -2,6 +2,20 @@
 
 ---
 
+> **Name:** **Grand Ancestral Bloodlines**
+
+> **Author:** **Awespec**
+
+> **Image:** <img src="3U26u/cover.jpg" height=200px> 
+
+> **Status:** ***Completed***
+
+> **Source:** **https://i0iu.github.io/0/3U26u**
+
+> **YouTube Playlist:** **https://www.youtube.com/playlist?list=---**
+
+---
+
 > **Name:** **我的世界之史蒂夫无敌了**
 
 > **Translated Name:** **My world Steve is invincible**
@@ -14,7 +28,7 @@
 
 > **Source:** **https://i0iu.github.io/0/94Lug6**
 
-> **YouTube Playlist:** [**---**](https://www.youtube.com/playlist?list=---)
+> **YouTube Playlist:** [**---**](https://www.youtube.com/playlist?list=PL_dsavwhmRadUiPySf7Yf_FHwqtI-rEu1)
 
 ---
 

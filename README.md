@@ -1,4 +1,17 @@
 # Link Shortened
+---
+
+> **Name:** **超神机械师**
+
+> **Author:** **齐佩甲**
+
+> **Image:** <img src="TLM1u0/cover.jpeg" height=200px> 
+
+> **Status:** ***Completed***
+
+> **Source:** **https://i0iu.github.io/0/TLM1u0**
+
+> **YouTube Playlist:** **https://www.youtube.com/playlist?list=**
 
 ---
 

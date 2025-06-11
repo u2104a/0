@@ -12,7 +12,7 @@
 | **Author** | **齐佩甲** |
 | **Status** | ***Completed*** |
 | **Source** | **https://i0iu.github.io/0/TLM1u0** |
-| **YouTube Playlist** | [****](https://www.youtube.com/playlist?list=) |
+| **YouTube Playlist** | [**https://www.youtube.com/playlist?list=PL_dsavwhmRaduHXaSjkV3TZy8LHCV1aSU**](https://www.youtube.com/playlist?list=PL_dsavwhmRaduHXaSjkV3TZy8LHCV1aSU) |
 
 **... Redirecting in 5 Seconds**
 

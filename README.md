@@ -1,17 +1,30 @@
 # Link Shortened
+
+> **Title:** <br> "被校花分手后，我直接武道通神" <br> by "春夜祭酒"
+
+> **Image:** <br> <img src="AAA001/cover.jpg" height=200px>
+
+> **Translated Title:** <br> "After breaking up with the school beauty, I became a martial arts master" <br> by "Spring Night Liquor Festival"
+
+> **Status:** <br> Completed
+
+> **Source:** <br> https://i0iu.github.io/0/AAA001
+
+> **YouTube Playlist:** <br> https://www.youtube.com/playlist?list=PLfMUNc8i0ANAgqZvh8Kfki61ve_Dmrggi
+
 ---
 
 > **Name:** **超神机械师**
 
 > **Author:** **齐佩甲**
 
-> **Image:** <img src="TLM1u0/cover.jpeg" height=200px> 
+> **Image:** <img src="TLM1u0/cover.jpeg" height=200px>
 
 > **Status:** ***Completed***
 
 > **Source:** **https://i0iu.github.io/0/TLM1u0**
 
-> **YouTube Playlist:** **https://www.youtube.com/playlist?list=PL_dsavwhmRaduHXaSjkV3TZy8LHCV1aSU**
+> **YouTube Playlist:** **https://www.youtube.com/playlist?list=PL_dsavwhmRafqsq1Zj5qFctKaLVAMe538**
 
 ---
 

@@ -1,5 +1,21 @@
 # Link Shortened
 
+> **Title:** <br> "高武：登录未来一万年"
+
+> **Translated Title:** <br> "Gao Wu: Logging in the next 10,000 years"
+
+> **Author:** <br> "每月一更"
+
+> **Image:** <br> <img src="AAA002/cover.jpeg" height=200px>
+
+> **Status:** <br> ?
+
+> **Source:** <br> https://i0iu.github.io/0/AAA002
+
+> **YouTube Playlist:** <br> https://www.youtube.com/playlist?list=PLfMUNc8i0ANDtFd1P1KsKNXuciBeytYxi
+
+---
+
 > **Title:** <br> "被校花分手后，我直接武道通神" <br> by "春夜祭酒"
 
 > **Image:** <br> <img src="AAA001/cover.jpg" height=200px>

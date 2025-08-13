@@ -1,5 +1,21 @@
 # Link Shortened
 
+> **Title:** <br> "超基进化"
+
+> **Translated Title:** <br> "Superbase Evolution"
+
+> **Author:** <br> "十二翼黑暗炽天使"
+
+> **Image:** <br> <img src="AAA003/cover.jpeg" height=200px>
+
+> **Status:** <br> Completed
+
+> **Source:** <br> https://i0iu.github.io/0/AAA003
+
+> **YouTube Playlist:** <br> https://www.youtube.com/playlist?list=PL9Q9utYw0fqlN7T_CVgJBkGGykDOi2aFG
+
+---
+
 > **Title:** <br> "高武：登录未来一万年"
 
 > **Translated Title:** <br> "Gao Wu: Logging in the next 10,000 years"

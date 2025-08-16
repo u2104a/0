@@ -1,5 +1,21 @@
 # Link Shortened
 
+> **Title:** <br> "不会真有人觉得修仙难吧"
+
+> **Translated Title:** <br> "No one really thinks cultivating immortality is difficult, right?"
+
+> **Author:** <br> "同人小说"
+
+> **Image:** <br> <img src="AAA004/cover.jpeg" height=200px>
+
+> **Status:** <br> Completed
+
+> **Source:** <br> https://i0iu.github.io/0/AAA004
+
+> **YouTube Playlist:** <br> https://www.youtube.com/playlist?list=PL9Q9utYw0fqm7F-_6-Sf4bNfXdwfek37m
+
+---
+
 > **Title:** <br> "超基进化"
 
 > **Translated Title:** <br> "Superbase Evolution"
